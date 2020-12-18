@@ -1,0 +1,1 @@
+take a bowl and put water and boil it.than put maggei and massla into it.than let maggei to dray water.than your maggei is rready
